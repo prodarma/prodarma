@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @prodarma
-- 👀 I’m interested in ... cock
-- 🌱 I’m currently learning ... CSS/HTML
+- 👀 I’m interested in ... aaaaaaaa
+- 🌱 I’m currently learning ... CS/HTML
 - 📫 How to reach me ... discord @ arma#8126
